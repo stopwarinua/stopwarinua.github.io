@@ -1,1 +1,0 @@
-# stopwarinua.github.io
